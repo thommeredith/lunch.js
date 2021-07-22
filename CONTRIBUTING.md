@@ -46,7 +46,7 @@ In short
 ### Selecting a location for lunch
 
 Try to pick a place with a reasonable price range (~$10 - ~$15) to accommodate as
-many participants as possible. Places that are cafeteria style (order at a counter and self seat) typically work best. If you have a big group you may want to find a place that will be more accomadating or in a worst case, break into smaller groups and sit at multiple tables.
+many participants as possible. Places that are cafeteria style (order at a counter and self seat) typically work best. If you have a big group you may want to find a place that will be more accommodating or in a worst case, break into smaller groups and sit at multiple tables.
 
 In short
 
